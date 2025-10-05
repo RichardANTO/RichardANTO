@@ -22,7 +22,7 @@ Currently expanding my skills at **ESIGELEC** and building projects that bridge 
 ### 📫 Let's Connect
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/richard-antoine30789/)
-- 📧 Email: iroudayaraju@gmail.com
+- 📧 Email: _(richyanto30@gmail.com)_
 
 ---
 
