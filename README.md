@@ -24,6 +24,8 @@ Currently expanding my skills at **ESIGELEC** and building projects that bridge 
 - 🔗[Portfolio](https://richard-profile-website.onrender.com)
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/richard-antoine30789/)
+
+- 📧 [Mail](richyanto30@gmail.com)
   
 - 📧 Email: _(richyanto30@gmail.com)_
 
